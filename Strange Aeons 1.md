@@ -1,0 +1,1 @@
+The *[Erebus](erebus.md)* slipped through the void of space like a well-tuned predator. Its fore-thrusters slowed its advance until it came to a full stop, ahead of it was the [Verian Debris Field](verian_debris_field.md).  
